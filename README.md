@@ -1,0 +1,2 @@
+# Lumea-Beauty-Content-Strategyy
+Beauty_Wellness_Content_Strategy_Assignment.docx
